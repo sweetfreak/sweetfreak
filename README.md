@@ -1,4 +1,4 @@
-## Hey! I'm Jesse!!
+## I'm Jesse!! 👍
 
 I’m a screenwriter/producer turned developer/designer after discovering my passion for game design while working at Nickelodeon. I love taking app and game ideas from concept to launch by shaping them, refining them, and adding polish to make them engaging, user-friendly, and genuinely useful.
 
